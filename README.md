@@ -1,4 +1,4 @@
-## Hi 
+## I suppose an AI generated text that says how much I love and how good I am at what I'm doing or something like that. 
 
 <!--
 **xaristout02-dot/xaristout02-dot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
